@@ -7,3 +7,5 @@ Schedule 1x/wk time to update upcoming 7-day calendar
 Thank you, Trisha!
 
 A new thought!
+
+A second new thought, for more practice!
